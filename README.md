@@ -1,4 +1,4 @@
-# E ae galerinha! 😃🗯
+#E ae galerinha! 😃🗯
 
 
 ### Atualmente trabalhando como QA Analyst ✔
